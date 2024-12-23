@@ -1,4 +1,4 @@
-I be chillin fr theres a 100% chance I wont notice u whispering me
+I wish for the downfall of every single happy couple I've seen today
 
 <!---
 Pinkswets/Pinkswets is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
